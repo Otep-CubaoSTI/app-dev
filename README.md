@@ -3,7 +3,7 @@
 # <p align = "center">Demon Slayer: Kimetsu no Yaiba</p>  
  
 <p align="center">
-    <img width = "1000" src="https://www.upressonline.com/wp-content/uploads/2021/01/695.jpeg" alt="Demon Slayer: Kimetsu no Yaiba">
+    <img width = "800" src="https://www.upressonline.com/wp-content/uploads/2021/01/695.jpeg" alt="Demon Slayer: Kimetsu no Yaiba">
 </p>
   
   
