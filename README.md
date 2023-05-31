@@ -7,7 +7,8 @@
 </p>
   
   
-<hr>  
+<hr>   
+
 Demon Slayer: Kimetsu no Yaiba is a Japanese fantasy manga series and comic book by [Koyoharu Gotouge](https://otakumode.com/otapedia/anime/kimetsu_no_yaiba_demon_slayer/kyoharu_gotouge). It follows Tanjiro Kamado, a young boy living in Taisho-era Japan who becomes the sole survivor of his family after demons kill them. He then sets out to save his sister Nezuko who has transformed into a demon. You can watch it on [Netflix](https://www.netflix.com/ph-en/title/81091393) with currently have four seasons. 
   
   
